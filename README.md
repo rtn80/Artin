@@ -1,2 +1,3 @@
 # Artin
-hi , i'm a gamer and PC lover  
+just continue 
+I have nothing to say...
